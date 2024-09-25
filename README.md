@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-😎 Just sharing my profile here. Let me introduce myself:
+😎 Just sharing my profile. Let me introduce myself:
 
 I'm from Pelotas/Rio Grande do sul;
 
